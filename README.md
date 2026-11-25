@@ -1,3 +1,3 @@
-md.ibrahim 2302320091
+md.Ibrahim 2302320091
 Gajjela.Saketh 2302320100
-m.rakesh reddy 2302320129
+m.Rakesh reddy 2302320129
